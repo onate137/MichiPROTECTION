@@ -1,4 +1,4 @@
-# MichiPROTECTION
+# MICHI-PROTECTION
 
 
 En estos últimos años se ha incrementado la adopción de gatos para el hogar, el cual es uno de los animales más populares debido a sus características de higiene e independencia, por ello debemos tener en cuenta que a la hora de hacer nuestros labores fuera de casa nuestros felinos se quedan solos generando una preocupación constante para el dueño del animal. Por ello nos centramos en cubrir las preocupaciones del dueño y además nos enfocamos totalmente en la independencia del animal.
